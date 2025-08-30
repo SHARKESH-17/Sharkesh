@@ -1,4 +1,4 @@
-## Hi I'm Sharkesh🪐🥤🥤</br>
+## Hi👋👋 I'm Sharkesh🪐🥤🥤</br>
 
 
 🤖🧑‍💻I'm a computer science student...</br>
